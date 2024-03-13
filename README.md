@@ -1,2 +1,4 @@
 # kabegami
-Wallpaper dump
+Personal wallpaper dump
+
+Name stolen from okami :3
